@@ -1,0 +1,1 @@
+- [The STRUCTURED ATOM MODEL](https://youtu.be/1p82NMNRr6U)
