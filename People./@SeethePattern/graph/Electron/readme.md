@@ -1,0 +1,2 @@
+- [Electrons CANNOT Radiate Under Acceleration! PART 1](https://youtu.be/aMNahsvI8-8)
+- [Electrons CANNOT Radiate Under Acceleration! PART 2](https://youtu.be/OOhdFXOm654)
